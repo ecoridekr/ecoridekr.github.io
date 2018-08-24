@@ -1,1 +1,0 @@
-# ecoridekr.github.io
